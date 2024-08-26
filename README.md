@@ -1,2 +1,2 @@
-# pratiektripath
+# pratiektripathi
 About Me 😎
